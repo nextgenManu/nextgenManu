@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @nextgenManu
-- 👀 I’m interested in creating
+- 👀 I’m interested in creating and editing
 - 🌱 I’m currently learning creating cryptocurrency
 - 💞️ I’m looking to collaborate on everything
 - 📫 How to reach me email: mnuela500@gmail.com
